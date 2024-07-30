@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AmaanAli8882 this side
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning react or frontend
+- 📫 Just Reach me out on my linked profile - https://www.linkedin.com/in/amaan-ali-94425a320/
+- 😄 Pronouns: He/Him
